@@ -24,6 +24,9 @@ JR Special Rapid: 28 min, ¥580, sin reservación. El Shinkansen solo te ahorra 
 
 ## 🍙 Konbini
 
-*Próximamente — tips de comida y conveniencia en konbinis*
+### 5 Errores comunes en Japón (NO los cometas)
+→ [errores-comunes-japon.md](errores-comunes-japon.md)
+
+Incluye tips de Welcome Suica, reservas de atracciones, Shinkansen, egg sandos y manejo de efectivo — basado en la serie de @travelwithkashika.
 
 ---
